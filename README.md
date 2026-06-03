@@ -1,4 +1,4 @@
-<img width="300" height="501" alt="image" src="https://github.com/user-attachments/assets/cc187abd-023a-4de3-b01a-fcf267716bd4" /># exposing-keiron-and-his-friend
+# exposing-keiron-and-his-friend
 
 
 https://media.discordapp.net/attachments/1463071916641353789/1510383235102806056/image.png?ex=6a21e380&is=6a209200&hm=8d5f730d147706a969aee97c6d07090cd7b42fc74412b298aa63f335543ac895&=&format=webp&quality=lossless
