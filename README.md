@@ -1,21 +1,29 @@
 # exposing-keiron-and-his-friend
 
 
-https://media.discordapp.net/attachments/1463071916641353789/1510383235102806056/image.png?ex=6a21e380&is=6a209200&hm=8d5f730d147706a969aee97c6d07090cd7b42fc74412b298aa63f335543ac895&=&format=webp&quality=lossless
+<img width="884" height="694" alt="image" src="https://github.com/user-attachments/assets/17eac634-40b1-4d3b-9cb6-b9bb2c5109b9" />
 
-https://media.discordapp.net/attachments/1463071916641353789/1510383235371372724/image.png?ex=6a21e380&is=6a209200&hm=7bc6800a497aae7f492c95c0be30173a2a5ef7470759bc7f8c95e3820521825a&=&format=webp&quality=lossless
 
-https://media.discordapp.net/attachments/1463071916641353789/1510383235685679204/image.png?ex=6a21e380&is=6a209200&hm=b95fd080c3e38eaa082e2f86d4482750dca99c1e2ce4d61297c3998c595bee1f&=&format=webp&quality=lossless&width=833&height=856
+<img width="547" height="758" alt="image" src="https://github.com/user-attachments/assets/8b58811b-b96a-4b4d-ba70-53d0f23b8132" />
 
-https://media.discordapp.net/attachments/1463071916641353789/1510383236063170823/image.png?ex=6a21e381&is=6a209201&hm=b25b83882644725fe60df8a2ff92c35c2b7e32123e9ed3797bf47a102b108a19&=&format=webp&quality=lossless
 
-https://media.discordapp.net/attachments/1463071916641353789/1510383236365418656/image.png?ex=6a21e381&is=6a209201&hm=37c2f7986aeffc5da5821c94914c7854f2d8165c3167542dcb74d5e511132abc&=&format=webp&quality=lossless
+<img width="884" height="908" alt="image" src="https://github.com/user-attachments/assets/f0b6ea12-43e4-4bf5-898d-a92da339a365" />
 
-https://media.discordapp.net/attachments/1463071916641353789/1510383236730196018/image.png?ex=6a21e381&is=6a209201&hm=0b4659b313fd6d32c98824dff052f2c1c7ea701bd273f5b60620bc894b5a9324&=&format=webp&quality=lossless
 
-https://media.discordapp.net/attachments/1463071916641353789/1510385102943686747/IMG_5197.png?ex=6a21e53e&is=6a2093be&hm=759fa30ded682028c5c8b46f3bf8796fc7925279ae156d4c544fe6327f2e6e41&=&format=webp&quality=lossless 
+<img width="1084" height="614" alt="image" src="https://github.com/user-attachments/assets/cbbaf640-e505-4576-8188-1c6272a7c763" />
 
-skidding wayzz launcher or aeris launcher wtv you call it https://media.discordapp.net/attachments/1463071916641353789/1511029247236636794/Screenshot_20260601_182931_com.discord.jpg?ex=6a219a26&is=6a2048a6&hm=3862df715abe37781f5e129927ce6a9c849bf962a94cb66e5f346c27309e633b&=&format=webp&width=432&height=960
+
+<img width="915" height="57" alt="image" src="https://github.com/user-attachments/assets/73552408-53a8-4fb7-93a4-b98d25795628" />
+
+
+<img width="965" height="220" alt="image" src="https://github.com/user-attachments/assets/37f85b78-2d2b-47b5-8b45-dd8abbcabd5b" />
+
+
+<img width="1179" height="521" alt="image" src="https://github.com/user-attachments/assets/a2336719-6543-43e4-9414-2f18339eb718" />
+
+
+skidding wayzz launcher or aeris launcher wtv you call it <img width="1080" height="2400" alt="image" src="https://github.com/user-attachments/assets/6632d7e3-45eb-40c1-bd9d-01b4096a06a9" />
+
 
 hes friend already in good level changing the name 
 
