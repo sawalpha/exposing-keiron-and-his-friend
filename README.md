@@ -29,7 +29,7 @@ hes friend already in good level changing the name
 
 <img width="300" height="501" alt="image" src="https://github.com/user-attachments/assets/b4a94efb-c1fe-475b-9b17-7f7b5ef0f483" />
 
-keiron new username @dxusik1x
+keiron new username @kiazp7
  and his id 1292775041263468586
 
  yh im so lazy to type explains to the pictures so yh just read them
