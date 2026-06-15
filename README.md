@@ -29,6 +29,12 @@ hes friend already in good level changing the name
 
 <img width="300" height="501" alt="image" src="https://github.com/user-attachments/assets/b4a94efb-c1fe-475b-9b17-7f7b5ef0f483" />
 
+
+forcing people to nuke or to do anything for example my friend they forced him to try nuke aeris
+
+<img width="1050" height="884" alt="image" src="https://github.com/user-attachments/assets/555cc4cc-d998-4005-90f5-1da59135d124" />
+
+
 keiron new username @kiazp7
  and his id 1292775041263468586
 
